@@ -1,1 +1,1 @@
-Tania Andersen, journalist. Makes reasearch tools.
+Tania Andersen, journalist. Makes research tools.
